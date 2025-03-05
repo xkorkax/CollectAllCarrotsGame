@@ -1,4 +1,4 @@
-# Collect them all! 
+# Collect them all! 🐰🥕
 
 ## Opis projektu
 
